@@ -2,6 +2,9 @@
 
 ## 電子書生態系
 
-平台（platform）是不是 書店（bookstore）？
+e93e0o<platformo<	f/d8
+f/ f8e:o<bookstoreo<	o<
 
-數位經銷商（distributor）與 聚合供應商（aggregator）相同嗎？
+f8d=
+g6i
+7eo<distributoro<	h hed>f	eo<aggregatoro<	g8eeo<
